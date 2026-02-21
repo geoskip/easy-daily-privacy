@@ -1,0 +1,1 @@
+# easy-daily-privacy
